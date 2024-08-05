@@ -1,5 +1,5 @@
 <h2 align="center">
-    ──「 SlayerX Music 」──
+    ──「 YOR X MUSIC 」──
 </h2>
 
 <p align="center">
